@@ -1,4 +1,4 @@
-#  
+#  minecraft exclusive Script is the best minecraft Script, featuring esp and auto-collect. Safe and powerful for all your needs.
 
 
 
